@@ -16,4 +16,4 @@
 http://www.yes24.com/24/AuthorFile/Author/360432
 
 ### 📫 Contact
- [<img src="https://img.icons8.com/color/48/000000/linkedin.png" width="3.5%"/>]([https://www.linkedin.com/in/adityapal1/](https://www.linkedin.com/in/thaiyoon-kwon-029bb5185/))  &nbsp; [<img src="https://img.icons8.com/fluent/48/000000/facebook-new.png" width="3.5%"/>]([https://www.facebook.com/sciencepal/](https://www.facebook.com/taeyoon.kwon.9))  &nbsp; [<img src="https://img.icons8.com/fluent/48/000000/instagram-new.png" width="3.5%"/>](https://www.instagram.com/taeyoon.kwon/)  &nbsp; <a href="mailto:tykwon94@gmail.com"> <img src="https://img.icons8.com/fluent/48/000000/gmail.png" width="3.5%"/>
+ [<img src="https://img.icons8.com/color/48/000000/linkedin.png" width="3.5%"/>](https://www.linkedin.com/in/thaiyoon-kwon-029bb5185/)  &nbsp; [<img src="https://img.icons8.com/fluent/48/000000/instagram-new.png" width="3.5%"/>](https://www.instagram.com/taeyoon.kwon/)  &nbsp; <a href="mailto:tykwon94@gmail.com"> <img src="https://img.icons8.com/fluent/48/000000/gmail.png" width="3.5%"/>
